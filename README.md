@@ -1,0 +1,4 @@
+- Hello everyone! hopfully life is treating you well.
+- This thing says put your interests. Unfortunately I have too many. Linguistics is one of them.
+- learning Data analysis using R for research purposes. I am also interested in learning programming for gamemaking purposes but one step at a time.
+- Private so far but we will see about the future.
